@@ -1,0 +1,1 @@
+# Veri_Tabanli_Parti_Seçim_Grafik_İstatistik
